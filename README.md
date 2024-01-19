@@ -19,7 +19,7 @@
 
 ## Contact 
 
-- LinkedIn: [Your LinkedIn](https://www.linkedin.com/in/sosa12vega)
-- Email: sos_19002@byui.edu
+- LinkedIn: [Mike Sosa](https://www.linkedin.com/in/sosa12vega)
+- Email: sos19002@byui.edu
 
 ---
